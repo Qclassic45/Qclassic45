@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Qclassic45
-- 👀 I’m interested in ... in learning how to be professional web developer
+- 👀 I’m interested in ... in learning how to be professional SOC Analysts 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 09077250173
